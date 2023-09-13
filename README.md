@@ -5,6 +5,6 @@
 - 🍀 Espero lhe ajudar com alguma coisa...
 - Onde me achar 💅:
 - 🖤**gabriela.kramer@escola.gov.br**
-- 
+  
 - 🖤 **@gabtkr**
   
